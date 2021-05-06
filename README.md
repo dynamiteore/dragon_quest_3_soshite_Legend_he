@@ -1,0 +1,2 @@
+# dragon_quest_3_soshite_Legend_he
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
